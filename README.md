@@ -1,5 +1,5 @@
 # Programming Jokes
-Instead of inspiring codes, I found some programming jokes
+Instead of inspiring codes, I found some programming jokes.
 
 
 This was a cool one I found. I thought this was super creative and if only bartenders in Auckland do this. I won't get the free drink though haha. 
